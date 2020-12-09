@@ -1,1 +1,0 @@
-# entortec.gitbuh.io
